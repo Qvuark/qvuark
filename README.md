@@ -1,4 +1,4 @@
-### Qvark is my bilogical daddy❤️
+### qvarkk is my bilogical daddy❤️
 ![image](https://github.com/Qvuark/qvuark/assets/93947984/2f928330-eb27-4175-86d0-e1214c6ed608)
 
 <!--
